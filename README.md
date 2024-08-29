@@ -26,3 +26,11 @@ Sou um entusiasta da tecnologia em transação de carreira apaixonado por Desenv
 ## 💼 **Experiência Profissional**
 
 Minhas experiências mais recentes estão relacionadas a área de finanças/administrativo, trabalhando em escritórios de contabilidade, tenho familiaridade com o pacote office, especialmente com o Excell, também tenho conhecimento em conciliações, analise de relatórios e documentos, atendimento a clientes, apresentações de balanço, fechamentos, indicadores e temas especificos.
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+
+![Colorful Minimalist Personal LinkedIn Banner (1)](https://github.com/user-attachments/assets/74282997-26af-4f8d-a538-6d6c9c783093)
