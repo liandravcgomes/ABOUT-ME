@@ -2,7 +2,7 @@
 # 🌻 **Olá, meu nome é Liandra** 🌻 
 
 
-Sou um entusiasta da tecnologia em transação de carreira apaixonado por Desenvolvimento de software, Banco de Dados, Hardware e outras ferramentas de tecnologia. Estudando Desenvolvimento de Sistemas no Senai Morvan Figueiredo, localizado em São Paulo. Atualmente trabalho na área das finanças, sou Contadora na empresa Audit Consult ltda., tendo me formado na Universidade Paulista em 2022 como Bacharel em Ciências Contabeis, também tive a oportunidade de concluir um técnico de Contabilidade na ETEC Pr. Camargo Aranha em 2015, atualmente meu intuito é enriquecer meus conhecimentos e/ou migrar para área de Tecnologia. Em busca de oportunidades melhores e de crescimento profissional. 👋
+Sou uma entusiasta da tecnologia, apaixonada por Desenvolvimento de software, Banco de Dados, Hardware e outras ferramentas de tecnologia. Estudando Desenvolvimento de Sistemas no Senai Morvan Figueiredo, localizado em São Paulo. Atualmente trabalho na área das finanças, sou Contadora na empresa Audit Consult ltda., tendo me formado na Universidade Paulista em 2022 como Bacharel em Ciências Contabeis, também tive a oportunidade de concluir um técnico de Contabilidade na ETEC Pr. Camargo Aranha em 2015, atualmente meu intuito é enriquecer meus conhecimentos e/ou migrar para área de Tecnologia. Em busca de oportunidades melhores e de crescimento profissional. 👋
 </br>
 </br>
 
